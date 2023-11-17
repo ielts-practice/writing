@@ -11,7 +11,7 @@ On the other hand, the increased and excessive exposure to foreign cultures thro
 
 ## ChatGPT
 ### Overall
-The impact of international communication facilitated by air travel and telecommunications on societies is multifaceted and far-reaching, especially in the contexts of international tourism and business. Here are some ways societies benefit from communicating with foreigners due to these factors
+The impact of international communication facilitated by air travel and telecommunications on societies is multifaceted and far-reaching, especially in the contexts of international tourism and business. Here are some ways societies benefits and drawbacks from communicating with foreigners due to these factors
 
 ### Benefits
 1. Cultural Exchange and Understanding: International communication promotes cultural exchange and understanding between societies. Exposure to different languages, customs, traditions, and ways of life broadens people's perspectives and reduces stereotypes and misconceptions. This leads to greater tolerance and appreciation for diversity, ultimately fostering global harmony.
